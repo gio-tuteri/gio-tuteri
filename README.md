@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @gio-tuteri
+👋 Hi, I’m @gio-tuteri
